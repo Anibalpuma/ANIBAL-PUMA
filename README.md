@@ -1,2 +1,0 @@
-# ANIBAL-PUMA
-trabajo
